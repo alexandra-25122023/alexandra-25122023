@@ -1,5 +1,5 @@
 - 👋 ola, meu nome é @alexandra
-- 👀 I’m interested in nos meus treinos
+- 👀 I’m interested in nos meus treinos de ft volei
 - 🌱 I’m currently aprendendo contabilidade
 - 💞️ I’m looking to collaborate projetos
 - 📫 How to reach me pelo instagram
